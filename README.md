@@ -1,0 +1,1 @@
+Olá me chamo Gilberto, brasileiro, 30 anos. Procuro estar atuando na área de Tecnologia da Informação com ênfase em infraestrutura, redes e segurança. Formado em Sistemas de Informação (2016), pós-graduado em Segurança de Redes de Computadores (2019). Busco uma empresa com plano de carreira e reconhecimento profissional.
